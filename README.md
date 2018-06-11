@@ -16,3 +16,4 @@
 ![CqxEp8.png](https://s1.ax1x.com/2018/06/11/CqxEp8.png)
 
 # 蛤币基金会：http://bitha.org/
+# 蛤链技术交流电报群：https://t.me/joinchat/ILNAVBJbcf5I9lfQaDwRTA
